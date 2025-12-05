@@ -11,5 +11,4 @@ kjnkl
 
 
 
-essee é na main prin
-cipal
+essee é na main principal
