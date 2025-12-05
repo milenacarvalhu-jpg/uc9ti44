@@ -8,7 +8,4 @@ felipe aqui
 miih aqui
 kjnkl
 
-
-
-
 essee é na main principal
